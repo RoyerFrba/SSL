@@ -5,7 +5,7 @@
 
 * *2023*
 
-* *Legajo 2041741*
+* *Legajo *
 
 * *Royer Rolando Yampasi Laura*
 
